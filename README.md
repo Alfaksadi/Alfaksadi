@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Alfaksadi
+7- 👋 Hi, I’m @Alfaksadi
 - 👀 I’m interested in Stories
 - 🌱 I’m currently learning Procurement
 - 💞️ I’m looking to collaborate on entrepreneurship
